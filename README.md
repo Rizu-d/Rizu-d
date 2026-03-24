@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Your Name]
+# 👋 Hi, I'm Rochana Dissanayake
 
 ## 🎓 IT Student | University of Ruhuna
 
